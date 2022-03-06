@@ -1,1 +1,1 @@
-[GitHub](https://lab.github.com/annyeong97)
+[Annyeong's GitHub](https://lab.github.com/annyeong97)
